@@ -1,1 +1,1 @@
-https://danger-site.hacker/mal.ps1
+https://pastebin.com/raw/xNkVzDGn
