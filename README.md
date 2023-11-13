@@ -1,1 +1,1 @@
-https://pastebin.com/raw/CiZTV3BA
+https://danger-site.hacker/mal.ps1
