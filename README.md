@@ -1,1 +1,1 @@
-https://pastebin.com/raw/xNkVzDGn
+https://nothing-suspicious-here.jul/script.ps1
